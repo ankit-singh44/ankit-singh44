@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **apankit1999@gmail.com**
 
-- 📄 Know about my experiences [I have 2'9 year of experience with Accenture Bangalore](I have 2'9 year of experience with Accenture Bangalore)
+- 📄 Know about my experiences [I have 3'6 year of experience with Accenture Bangalore](I have 2'9 year of experience with Accenture Bangalore)
 
 - ⚡ Fun fact **Globally-featured mobile photographer**
 
